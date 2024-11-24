@@ -7,6 +7,6 @@
 ##### Facebook name name: Adem HOUIJI 
 ~~_______________________________________________________________________________________________________________________________________________________~~
 
-| HI | LOL |
-|---:|----:|
-| ENJOY | PRO |
+| DISCORD | ademhouiji |
+| Fortnite| Billy On Top|
+| Facebook | Adem HOUIJI |
